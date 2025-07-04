@@ -1,3 +1,4 @@
+
 # Nanih Oba University – International American Republic
 
 **Edification Over Education | Sovereignty in Spirit and Law**
@@ -43,4 +44,3 @@ Visit [StartupTechLaw.com](https://www.startuptechlaw.com) for legal setup guida
 ---
 
 © 2025 Nanih Oba University | International American Republic. All Rights Reserved.
-# nanihoba.github.io
